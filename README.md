@@ -11,7 +11,7 @@
 
 -  How to reach me **mauryahimanshu567@gmail.com**
 
--  Know about my experiences [https://drive.google.com/file/d/1WhSxutTtVwMMrtNa90aZT0oYANdmi9wr/view?usp=sharing]([https://drive.google.com/file/d/1WhSxutTtVwMMrtNa90aZT0oYANdmi9wr/view?usp=sharing](https://drive.google.com/file/d/1trrz2atcdA9DOWexs1Cec_bVrF6-tYaM/view?usp=sharing))
+-  Know about my experiences [https://drive.google.com/file/d/1trrz2atcdA9DOWexs1Cec_bVrF6-tYaM/view?usp=sharing]
 
 -  Fun fact **Started liking dark themes now**
 
