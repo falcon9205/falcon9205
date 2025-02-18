@@ -5,9 +5,9 @@
 
 <p align="center"> <img src="https://i.pinimg.com/originals/69/e6/f6/69e6f674d4ab40834c31493d21d9560c.gif" alt="falcon9205" /> </p>
 
--  I’m currently learning **Nodejs , Express**
+-  I’m currently learning **Docker , AWS**
 
--  Ask me about **MERN , JAVA CORE**
+-  Ask me about **MERN , Next.Js**
 
 -  How to reach me **mauryahimanshu567@gmail.com**
 
